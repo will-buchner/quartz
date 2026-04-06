@@ -1,0 +1,1 @@
+The hospital in [[Sibah]].
