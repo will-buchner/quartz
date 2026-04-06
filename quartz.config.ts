@@ -17,7 +17,7 @@ const config: QuartzConfig = {
     },
     locale: "en-US",
     baseUrl: "quartz.jzhao.xyz",
-    ignorePatterns: ["C:\Users\willi\Documents\DND_CAMPAIGN\quartz\content\Important Notes\DM_Notes", "templates", ".obsidian"],
+    ignorePatterns: ["content\Important Notes\DM_Notes", "templates", ".obsidian"],
     defaultDateType: "modified",
     theme: {
       fontOrigin: "googleFonts",
