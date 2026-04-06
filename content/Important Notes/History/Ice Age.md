@@ -1,0 +1,1 @@
+When the [[Artificial Sky]] was being built, they made sure to let the planet freeze over first because of the construction of the [[Dyson Sphere]]. This killed everything on the planet, and so now they can reset it. There was the [[Meteor Strike]], though, and so when they reintroduced humans, they had some competition.

@@ -1,0 +1,1 @@
+The players near [[The Panel]], and see light coming from inside. It all seems to flow into a small, circular hole in front of them. Light beams out from the hole, creating a [[Holographic Map]]. The map is shown for a while, before it runs out of power and turns off. The party was able to mark the location on a basic map.
