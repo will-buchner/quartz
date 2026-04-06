@@ -1,0 +1,1 @@
+Ben Freeman's Assistant, Gnome. Injured from [[The Panel]], and in the hospital.
