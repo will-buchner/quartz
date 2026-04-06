@@ -1,0 +1,2 @@
+A hallucination caused by Marcus's [[Schizophrenia]]
+He believes it to be a book that contains great knowledge of massive hexagonal-metallic-egg-laying earthworms that have only been seen a couple times in the planets history.
