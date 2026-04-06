@@ -1,1 +1,0 @@
-[[Sap (Elvish Bard Biologist)]] and [[Marcus (Schizo Blue Dragonborn)]] find a boy on the other side of the street from a building that's been reduced to rubble. He tells them his father is inside, and he'll come out in just a minute.

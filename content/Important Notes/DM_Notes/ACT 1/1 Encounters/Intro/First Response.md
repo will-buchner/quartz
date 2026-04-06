@@ -1,1 +1,0 @@
-The Players assisted in the first response efforts in the aftermath of [[The Panel]]. [[Chocolate Starfish (Goliath)]] and [[Ben Freeman (Halfling Business Owner)]] helped gather people onto a commandeered wagon to shuttle them to the hospital. [[Sap (Elvish Bard Biologist)]] and [[Marcus (Schizo Blue Dragonborn)]] helped search the wreckage.

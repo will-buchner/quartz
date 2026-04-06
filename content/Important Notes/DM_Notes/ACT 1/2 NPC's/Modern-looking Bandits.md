@@ -1,1 +1,0 @@
-The are original Humans. They come from the Mars Colony
