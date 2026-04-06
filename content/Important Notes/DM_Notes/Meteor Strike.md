@@ -1,1 +1,0 @@
-A meteor struck the planet before the completion of the [[Artificial Sky]], and after the completion of the [[Dyson Sphere]]. It introduced magic and all the critters from base game DnD.

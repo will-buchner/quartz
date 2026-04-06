@@ -1,1 +1,0 @@
-[[Modern-looking Bandits]] attack the party while they are on the way to [[Kianu]]. A bandit and a veteran bandit are in the path to hold up the party. They intend to rob them, and have 4 more bandits in hiding. When combat initiates, 2 more join the fight after sneak attacks if the players they attack have a passive perception of 10 or less. 
