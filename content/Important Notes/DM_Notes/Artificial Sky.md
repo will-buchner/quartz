@@ -1,0 +1,1 @@
+A sphere around the earth to maintain climate.
