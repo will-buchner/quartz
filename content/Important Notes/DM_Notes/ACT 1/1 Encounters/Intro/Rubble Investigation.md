@@ -1,1 +1,0 @@
-[[Ben Freeman (Halfling Business Owner)]] tries to get past the rapid deployment barricades to do some investigation. It doesn't work, all he could see was bodies and rocks.
