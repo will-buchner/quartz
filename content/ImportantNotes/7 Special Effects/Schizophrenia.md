@@ -1,1 +1,0 @@
-A mental illness that can cause visual or auditory illusions. Once an afflicted player rolls a perception check, if they barely fail (-3 from the DC), the DM rolls 1d20 to determine whether or not they hallucinate. If the DM rolls 15+, they get to fabricate what the player perceives. 
