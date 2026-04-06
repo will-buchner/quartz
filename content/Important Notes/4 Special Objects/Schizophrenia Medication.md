@@ -1,0 +1,1 @@
+Pills that remove the effect from a being suffering from [[Schizophrenia]]. They last 12 hours each.
