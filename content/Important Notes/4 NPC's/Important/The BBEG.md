@@ -1,1 +1,0 @@
-Dictator maintaining Earth as the biggest science experiment performed by the human race.

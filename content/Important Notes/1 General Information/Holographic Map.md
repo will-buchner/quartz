@@ -1,1 +1,0 @@
-Displayed from [[The Panel]], showing a point far, far away, with a route from it's current location to it displayed.
