@@ -1,1 +1,1 @@
-Due to his [[Schizophrenia]], [[Marcus (Schizo Blue Dragonborn)]], believes that [[Sap (Elvish Bard Biologist)]] was killed by a crossbow bolt to the noggin during a [[Bandit Attack]] on the way to the next town from [[Sibah]]
+Due to his [[Schizophrenia]], [[Marcus (Schizo Blue Dragonborn)]] believes that [[Sap (Elvish Bard Biologist)]] was killed by a crossbow bolt to the noggin during a [[Bandit Attack]] on the way to the next town from [[Sibah]]

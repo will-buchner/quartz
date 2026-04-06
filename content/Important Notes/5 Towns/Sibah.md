@@ -1,3 +1,4 @@
+A town on the other side of the Cascades from the coast. The starting point of the campaign.
 ```leaflet
 ### Tutorial: https://youtu.be/54EyMzJP5DU
 ### id must be unique
