@@ -1,0 +1,1 @@
+An 8 year old boy, frightened by the [[Mysterious Sound]] in the woods.

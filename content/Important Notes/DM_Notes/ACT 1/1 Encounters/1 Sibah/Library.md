@@ -1,0 +1,1 @@
+[[Sap (Elvish Bard Biologist)]] and [[Marcus (Schizo Blue Dragonborn)]] went to the library to find information on what happened with [[The Panel]].

@@ -1,0 +1,1 @@
+A bustling coastal city. A commerce hub for [[The Caliphate of Al-Buraha]] and [[Misei]].

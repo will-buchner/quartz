@@ -1,0 +1,1 @@
+Monika is a worried mother that the players encountered in [[Kianu]]. She asks them to help get rid of the [[Mysterious Sound]] in the woods that is scaring her child, [[Rufus Eastus]].

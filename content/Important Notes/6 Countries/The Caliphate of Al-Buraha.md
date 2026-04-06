@@ -1,0 +1,1 @@
+Ruled by a gracious man with heritage from a distant land. He 

@@ -1,0 +1,1 @@
+[[Chocolate Starfish (Goliath)]] attempts to join the town guard, but [[Kenneth Tojan]] is out of town. The clerk gives him an application form/scroll, and tells him to follow the general if he wants to join the guard for their investigations. He attempts to gain entry to the barracks from an exterior window, and wakes up a guard. He hid in time, and had to abandon his task.

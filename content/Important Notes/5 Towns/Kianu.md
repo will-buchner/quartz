@@ -1,0 +1,1 @@
+The next town from [[Sibah]], halfway up the Cascade mountain range. It used to be a military checkpoint in the early days of [[The Caliphate of Al-Buraha]]. Now, it is a small town with a castle that is used by the town guard. Almost a border checkpoint between the Caliphate and [[Misei]], even though Misei is controlled by the Caliph, [[Al Buraha]].
